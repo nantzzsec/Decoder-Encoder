@@ -26,4 +26,3 @@ Feel free to reach out to me if you want to collaborate or discuss any project.
 - [Tiktok](https://www.tiktok.com/@accessdenied_error)
 
 Thank you for visiting my GitHub!
-
